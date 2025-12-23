@@ -1,4 +1,4 @@
-# ChavinduSashmika
+# ChavinduSashmilka
 ## 👋 Hi, I’m Chavindu
 
 🎓 Computer Science A-Level student  
